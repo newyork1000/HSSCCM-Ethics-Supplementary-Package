@@ -1,0 +1,1 @@
+HSSCCM Ethics Supplementary Materials: 1. Research Ethics Review Report (Approval No. NO. GGCLL 20231210) confirming ethical approval; 2. Questionnaire screenshot showing informed consent procedures. Anonymized for double-blind review.
